@@ -1,1 +1,0 @@
-# producto-de-software
